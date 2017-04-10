@@ -1,2 +1,0 @@
-# ShanTrish
-my beautiful daughters
